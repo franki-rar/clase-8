@@ -1,1 +1,7 @@
-# clase-8
+# clase-8![SANTI](https://github.com/user-attachments/assets/de741e4f-2bfc-493a-923a-548c6c1e64c1)
+![VRP](https://github.com/user-attachments/assets/7f54e1be-8beb-462c-98c3-ae80641f0052)
+![PUSHO](https://github.com/user-attachments/assets/0b34cb17-7b5e-44fc-ab34-fb0259ee4ddd)
+![LODO](https://github.com/user-attachments/assets/e9430adb-34f2-4da5-ae67-3aba7cd57f04)
+![KIARA](https://github.com/user-attachments/assets/8fe5d48c-a2a4-4a20-ab17-9e220a878914)
+![CHINA](https://github.com/user-attachments/assets/ba420e1e-5bc7-4a00-b9b5-869feee9ca65)
+![BEN](https://github.com/user-attachments/assets/fcbc3a12-6099-4c00-b76c-9ff9db250fb7)
